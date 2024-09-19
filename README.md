@@ -1,0 +1,2 @@
+# codigo-qr
+# codigo-qr
